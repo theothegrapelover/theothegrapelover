@@ -1,4 +1,4 @@
-PEOPLE I HATE DNI except for lomed:) 
+FAT friends i HATE
 [izo](https://github.com/dearletter) 
 [Bibi](https://github.com/bibistry) 
 [lomedy](https://github.com/lomedys) 
@@ -8,5 +8,5 @@ PEOPLE I HATE DNI except for lomed:)
 [snel](https://github.com/snelsarecool) 
 [toki](https://github.com/orcapaint) 
 [fei](https://github.com/100bottlesofglue)  
-<img src="https://cdn.discordapp.com/attachments/1222804313881972799/1555871866504355900/Screenshot_20261003_171809_Chrome.jpg?backend=b2&ex=6ac21a17&is=6ac0c897&hm=05ccfee8572042db69cc2d8822ac25b4577fabb5924b33d4e13c328f2805be5e&" width="200" align="center">
-FUCK OFF IZO
+CUTE qpp i LOVE
+[lomedy](https://github.com/lomedys) 
